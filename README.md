@@ -12,7 +12,7 @@
 
 *For more details see my youtube channel 
 
-*Click :- [The Devil Tigers](https://www.youtube.com/c/thmalayalam)
+*Click :- [TECHNICAL VIJU OFFICIAL](https://www.youtube.com/channel/UClaPLinuap5sArWpPqoxwcA))
 
 <h3>How to run this Tool "Tiger Virus"</h3>
 
@@ -85,11 +85,11 @@ When Any One Install It. Their Phone Will Be Damaged and Reset!
 
 <h5>Testing</h5> 
 
-*script by THE DEVIL TIGERS
+*script by TECHNICAL VIJU OFFICIAL
 
-*Owner Of Tiger Virus : ASHIK K I 
+*Owner Of Tiger Virus : VIJU HACKER
 
-©[The Devil Tigers](https://www.youtube.com/c/thmalayalam)
+©[The Devil Tigers](https://www.youtube.com/channel/UClaPLinuap5sArWpPqoxwcA)
 
 <h3>FOR EDUCATIONAL PURPOSE ONLY</h3>
 
